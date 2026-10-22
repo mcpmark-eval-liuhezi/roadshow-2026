@@ -1,0 +1,1 @@
+Book economy rail whenever possible. Hotel cap: 120 EUR per night. Submit receipts within 14 days.
